@@ -5,3 +5,4 @@
 - Nani Palkhivala Memorial National Tax Moot Court Competition:  
   - Organising Committee Member (19th Edition)  
   - Co-Head of Team Finance (20th Edition)  
+Overall cultural coordinator and Marketing Core Of Kurusastra(2025-2026)
